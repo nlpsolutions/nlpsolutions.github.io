@@ -1,1 +1,0 @@
-# nlpsolutions.github.io
